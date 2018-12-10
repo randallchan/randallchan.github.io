@@ -4,7 +4,7 @@ Runyu (Randall) Chen is now a fourth-year Ph.D candidate in computer science at 
 
 He started to invest stocks in 2012 and invest cryptocurrencies in 2017, once won the simulated stock market contest in Beijing University of Posts and Telecommunications in 2012. In 2015 he made his first million RMB in stock markets and In 2017 he made his first 10 million RMB in crytocurrency market. Although in 2018, it seems fall back to the origin... He enjoys investing and may starts to run quantitative trading in the future at the right time.
 
-He seems be buttoned up but are willing to make new friends all the time. Particularly, if you have two of the following characteristics (genuine, humorous, capable in one area), you are very likely to be his good friends. Good friend means a lot  to him. In addition, he has developed many hobbies from childhood, like music, basketball, table tennis, hard brush calligraphy... These hobbies give him a lot of memorable experiences. 
+He seems be buttoned up but is willing to make new friends all the time. Particularly, if you have two of the following characteristics (genuine, humorous, capable in one area), you are very likely to be his good friends. Good friend means a lot  to him. In addition, he has developed many hobbies from childhood, like music, basketball, table tennis, hard brush calligraphy... These hobbies give him a lot of memorable experiences. 
 
 最后，他希望做一个独特而稀缺的好人，梦想着永远能有新的温暖可以走进他的生活。
 
